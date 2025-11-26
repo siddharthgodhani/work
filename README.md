@@ -1,1 +1,3 @@
 https://valida.sk/55344046?utm_source=chatgpt.com
+
+https://www.finstat.sk/55344046?utm_source=chatgpt.com
