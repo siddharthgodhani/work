@@ -1,3 +1,1 @@
-https://valida.sk/55344046?utm_source=chatgpt.com
-
-https://www.finstat.sk/55344046?utm_source=chatgpt.com
+https://www.atfis.or.kr/home/company.do?act=detail&beginYear=0&businessType=distribution&cpnyCd=100000006433450&endYear=0&orderField=slsAmt&orderGubun=DESC&orderYear=0&pageIndex=107&pageUnit=15/
