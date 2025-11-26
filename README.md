@@ -7,3 +7,7 @@ https://jiweipreview.laoyaoba.com/html/news/newsdetail?news_id=817273&utm_source
 
 
 https://www.zhipin.com/gongsi/bd6914830b308e171HVy39u9EFU~.html
+
+
+
+https://b2bhint.com/en/company/tr/soyturk-dis-ticaret-cetin-soyturk--623624-0
