@@ -1,2 +1,13 @@
-https://eng.yidaiyilu.gov.cn/p/3460.html
-https://www.cnraw.org.cn/index.php/article/tianranjiaoziyuan/7689.html
+Dear Pugal,
+
+Thank you for sharing this opportunity.
+
+Please find attached the resume of my referral. Below are the details as requested:
+Name:
+Contact details:
+Area of interest:
+
+Kindly let me know if any further information is required.
+
+Regards,
+Sid
