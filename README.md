@@ -1,4 +1,1 @@
-IFERROR( INDEX(Data!A:A, MATCH(TRUE, ISNUMBER(SEARCH(LOWER(A2), LOWER(Data!A:A))), 0) ), "Not Found")
-
-
-IFERROR( INDEX(Data!B:B, MATCH(TRUE, ISNUMBER(SEARCH(LOWER(A2), LOWER(Data!A:A))), 0) ), "Not Found")
+https://lasempresas.com.mx/inmobiliaria-mejo-c80296/?amp
